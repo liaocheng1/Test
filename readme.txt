@@ -5,4 +5,11 @@ git
 
 左脚gae
 
-jiimfieiqmnp
+jiimfirgaega
+dfgea
+gitergae
+gitergaega
+ee
+ga
+ef
+a
